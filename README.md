@@ -1,6 +1,6 @@
 ## vessy
 
-*J hardly making fun.*
+*fun developer*
 
 
 <h3>Contact</h3>
